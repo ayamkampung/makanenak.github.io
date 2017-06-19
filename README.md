@@ -1,1 +1,1 @@
-# makanenak.github.io
+# makanenak.net
